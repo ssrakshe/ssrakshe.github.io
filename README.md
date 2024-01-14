@@ -1,0 +1,1 @@
+Portfolio: It is a curated collection showcasing an individual's work, achievements, and skills. It typically includes a resume, work samples, testimonials, and details about education, skills, and professional experience
